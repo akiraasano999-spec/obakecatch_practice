@@ -1,1 +1,0 @@
-# obakecatch_practice
